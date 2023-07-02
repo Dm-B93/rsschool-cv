@@ -23,4 +23,3 @@ About Me
 · My strengths are systems thinking, customer focus, positive attitude.
 · I have a high working capacity, I am able to work in multitasking mode, in a team, I have developed organizational and managerial skills.
 Hobbies: sports, cars
-
